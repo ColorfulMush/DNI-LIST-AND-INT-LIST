@@ -1,4 +1,4 @@
-8<img align="center" width="300" height="auto" src="https://files.catbox.moe/igo9k3.jpg">
+<img align="center" width="300" height="auto" src="https://files.catbox.moe/igo9k3.jpg">
 
 DNI LIST;
    
