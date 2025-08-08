@@ -1,4 +1,4 @@
-<img align="center" width="300" height="auto" src="https://files.catbox.moe/igo9k3.jpg">
+8<img align="center" width="300" height="auto" src="https://files.catbox.moe/igo9k3.jpg">
 
 DNI LIST;
    
@@ -11,6 +11,8 @@ DNI LIST;
    ppl that messes w my friends, 
    sexual ponies. 
 
+<img align="right" width="300" height="auto" src="https://files.catbox.moe/u99xtr.jpeg">
+
 INT LIST;
    
    bllk fans,
@@ -21,5 +23,3 @@ INT LIST;
    NON - dry texters, 
    YORU AND AKITO LOVERS.  
    friends ofc haha laughs
-   
-   <img align="right" width="300" height="auto" src="https://files.catbox.moe/u99xtr.jpeg">
