@@ -1,5 +1,4 @@
-<img align="right" width="300" height="auto" src="https://files.catbox.moe/igo9k3.jpg">
-<img align="right" width="300" height="auto" src="https://files.catbox.moe/u99xtr.jpeg">
+<img align="left" width="300" height="auto" src="https://files.catbox.moe/igo9k3.jpg">
 
 DNI LIST;
    
@@ -11,6 +10,8 @@ DNI LIST;
    toxic,    
    ppl that messes w my friends, 
    sexual ponies. 
+
+<img align="right" width="300" height="auto" src="https://files.catbox.moe/u99xtr.jpeg">
 
 INT LIST;
    
