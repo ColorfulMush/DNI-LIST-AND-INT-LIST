@@ -4,7 +4,8 @@ DNI LIST;
    
    saerin shippers,   
    flirters [even joke.] ,   
-   tut skins,   
+   tut skins,
+   racists, 
    kaisagi shippers,   
    proshippers,   
    toxic,    
@@ -15,11 +16,11 @@ DNI LIST;
 
 INT LIST;
    
-   bllk fans,
-   pjsk fans,
+   same fandoms, 
    laufey fans,  
    colorful ponies,    
    friendly ppl, 
-   NON - dry texters, 
+   NON - dry texters,
+   fun people, 
    YORU AND AKITO LOVERS.  
    friends ofc haha laughs
